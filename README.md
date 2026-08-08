@@ -1,5 +1,5 @@
-<img width="99" height="56" alt="IMG_7293" src="https://github.com/user-attachments/assets/651b5286-9713-4d86-9c41-4cb780117ca4" />
-<img width="99" height="56" alt="IMG_7281" src="https://github.com/user-attachments/assets/f38063b7-89c2-42fb-9443-a6ecaa0396f7" />
+<img width="432" height="14" alt="IMG_7280" src="https://github.com/user-attachments/assets/c7edb1ef-fd5d-44ce-afac-092029ffaeed" />
+
 <img width="150" height="20" alt="IMG_7285" src="https://github.com/user-attachments/assets/c95c56e5-7958-403b-b1b5-cd9231cfc25d" />
 
 
@@ -16,7 +16,8 @@ a world without art would be boring so keep making art no matter what - jellibel
 <img width="146" height="24" alt="IMG_7291" src="https://github.com/user-attachments/assets/44af67d5-8f8c-4cc0-aec4-fc02448934be" />
 
 
-<img width="99" height="56" alt="IMG_7293" src="https://github.com/user-attachments/assets/b5957312-8e0e-4e57-aad0-5d8bfecd2232" /><img width="99" height="56" alt="IMG_7277" src="https://github.com/user-attachments/assets/182fb01f-8eba-4a75-a2ec-255fe3005f49" />
+<img width="432" height="14" alt="IMG_7280" src="https://github.com/user-attachments/assets/55e1c959-d323-465c-8350-38e2c362d4a6" />
+ /><img width="99" height="56" alt="IMG_7277" src="https://github.com/user-attachments/assets/182fb01f-8eba-4a75-a2ec-255fe3005f49" />
 
 <img width="99" height="56" alt="IMG_7297" src="https://github.com/user-attachments/assets/659017bd-dfdd-4bd2-8cc8-b8f9f6f4b631" />
 
