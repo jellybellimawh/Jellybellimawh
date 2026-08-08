@@ -16,7 +16,7 @@ a world without art would be boring so keep making art no matter what - jellibel
 
 
 
-<img width="99" height="56" alt="IMG_7277" src="https://github.com/user-attachments/assets/c8dad2ed-3124-4ce8f9b-d0bd9a73dd60" />
+<img width="99" height="56" alt="IMG_7292" src="https://github.com/user-attachments/assets/170bea18-4f8b-4d52-ba86-c42237abb096" />
 <img width="99" height="56" alt="IMG_7296" src="https://github.com/user-attachments/assets/e2528e72-a33b-49b4-ac56-549cde6c5276" />
 <img width="99" height="56" alt="IMG_7292" src="https://github.com/user-attachments/assets/e53045e2-b11b-45bc-9322-7fa7c9e040fd" />
 
