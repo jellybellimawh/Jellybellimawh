@@ -1,5 +1,8 @@
 <img width="150" height="20" alt="IMG_7285" src="https://github.com/user-attachments/assets/c95c56e5-7958-403b-b1b5-cd9231cfc25d" />
 
+
+
+
 hi this is Jelli speaking !! check sp for information !! sign ata book bevause you think I’m cool and u like soup
 
 a world without art would be boring so keep making art no matter what - jellibelli
@@ -12,6 +15,12 @@ a world without art would be boring so keep making art no matter what - jellibel
 
 
 <img width="432" height="14" alt="IMG_7280" src="https://github.com/user-attachments/assets/73418a9b-d550-4d1a-bbf8-687613457dc8" />
+
+
+
+
+
+
 
 
 
