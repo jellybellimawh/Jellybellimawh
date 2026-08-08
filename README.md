@@ -3,7 +3,7 @@
 
 
 
-hi this is Jelli speaking !! check sp for information !! sign ata book bevause you think I’m cool and u like soup
+  hi this is Jelli speaking !! check sp for information !! sign ata book bevause you think I’m cool and u like soup
 
 a world without art would be boring so keep making art no matter what - jellibelli
 
@@ -25,7 +25,9 @@ a world without art would be boring so keep making art no matter what - jellibel
 
 
 
-<img width="99" height="56" alt="IMG_7292" src="https://github.com/user-attachments/assets/170bea18-4f8b-4d52-ba86-c42237abb096" />
+<img width="99" height="56" alt="IMG_7297" src="https://github.com/user-attachments/assets/659017bd-dfdd-4bd2-8cc8-b8f9f6f4b631" />
+
 <img width="99" height="56" alt="IMG_7296" src="https://github.com/user-attachments/assets/e2528e72-a33b-49b4-ac56-549cde6c5276" />
+
 <img width="99" height="56" alt="IMG_7292" src="https://github.com/user-attachments/assets/e53045e2-b11b-45bc-9322-7fa7c9e040fd" />
 
