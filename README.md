@@ -9,6 +9,8 @@
 
 a world without art would be boring so keep making art no matter what - jellibelli
 
+I like seeing people’s sp’s so PLEASE let me see yours ok? Tyty
+
 <img width="150" height="20" alt="IMG_7302" src="https://github.com/user-attachments/assets/18e592fe-3821-4be8-a077-88de8f114197" />
 <img width="150" height="20" alt="IMG_7299" src="https://github.com/user-attachments/assets/65e56d84-87f3-4675-b054-391720db326d" />
 <img width="150" height="20" alt="IMG_7288" src="https://github.com/user-attachments/assets/98993968-4bbf-4a48-bc62-3d3fdc339fdd" />
