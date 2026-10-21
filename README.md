@@ -1,19 +1,13 @@
-#include <iostream>
-using namespace std;
 
-int main () {
-
-cout << "heyyyyyy, sign ata i know its boring but please and check out my strawpage owo" << endl;
-
-return 0;
-}
 
 
 ><img width="150" height="20" alt="IMG_7285" src="https://github.com/user-attachments/assets/c95c56e5-7958-403b-b1b5-cd9231cfc25d" />
 
 
 
+hey, sign ata its boring ik but please and check out my sp that is the cooler one hahhaha
 
+owo
 
 
 
